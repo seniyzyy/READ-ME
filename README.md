@@ -1,8 +1,8 @@
 <h5 align="center">
-<img src="https://media.discordapp.net/attachments/903364339464044575/1101101934263423046/96D01318-D482-475C-8D67-BCC9C2401CA0.png"/>
+<img src="https://files.catbox.moe/1dc41j.png"/>
 </h5> 
 <h5 align="center">
-<img src="https://cdn.discordapp.com/attachments/1200580580211961887/1204892708028678234/Untitled198_20240207145319.png?ex=65d662c7&is=65c3edc7&hm=e8f2ee12b47ae0dc1e162812b7bd78084022e7ae29d2b9e1ea58843849cc2251&"/>
+<img src="https://i.postimg.cc/bJTM0scQ/div114.gif"/>
 </h5>  
 <p align="center">
  ──  i love gay aliens . w2i ── 
@@ -18,5 +18,5 @@
 
 </div>
 <h5 align="center">
-<img src="https://media.discordapp.net/attachments/903364339464044575/1101101934263423046/96D01318-D482-475C-8D67-BCC9C2401CA0.png"/>
+<img src="https://i.postimg.cc/bJTM0scQ/div114.gif"/>
 </h5>
